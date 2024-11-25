@@ -1,0 +1,1 @@
+# ringraziamento-laura
